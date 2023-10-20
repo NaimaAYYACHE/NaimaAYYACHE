@@ -12,7 +12,7 @@
 
 - 📫 Comment me joindre **ayyache.naima@gmail.com**
 
-- 📄 Découvrez mes expériences [[https://cvdesignr.com/p/64c911e313587](https://cvdesignr.com/p/64c911e313587](https://cvdesignr.com/p/65269d006334a)
+- 📄 Découvrez mes expériences [https://cvdesignr.com/p/65269d006334a).
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
